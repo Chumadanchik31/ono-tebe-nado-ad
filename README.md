@@ -1,1 +1,1 @@
-https://github.com/GrigoriyAfonkov/ono-tebe-nado-ad
+https://github.com/Chumadanchik31/ono-tebe-nado-ad
